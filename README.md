@@ -16,4 +16,7 @@ We do not sell, rent, or share personal data with third parties, except where ne
 
 All data is processed securely and retained only for as long as necessary to fulfill the purposes described above.
 
-Users
+Users may request access to or deletion of their personal data by contacting us at:
+lokmann0909@gmail.com
+
+This service complies with applicable data protection and privacy regulations.
